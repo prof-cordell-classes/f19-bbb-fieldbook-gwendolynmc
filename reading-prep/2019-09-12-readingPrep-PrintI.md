@@ -8,6 +8,6 @@
 
 2. Does recreating Gutenberg's original printing press in the present day give us any modern insight into printing, or was the technology improved upon so much that the original no longer has any practical value?
 
-3. "Digital kids are sick of sitting in front of screens pushing buttons all day." (Erik Spiekermann in _Well-Pressed_): Is this necessarily true? A good portion of the younger generations are fully content to do just that. The people mentioned as coming to his letterpress are graphic designers, fine artists, and illustrators - all of whom are more likely than your average Millenial/Gen X-er to want to seek out the individualized, hands-on experience of letterpress. Maybe the reason they're flocking to printing studios has more to do with the availability of an art medium that was not previously accessible to them.
+3. "Digital kids are sick of sitting in front of screens pushing buttons all day." (Erik Spiekermann in _Well-Pressed_): Is this necessarily true? A good portion of the younger generations are fully content to do just that. The people mentioned as coming to his letterpress are graphic designers, fine artists, and illustrators - all of whom are more likely than your average Millenial/Gen Z to want to seek out the individualized, hands-on experience of letterpress. Maybe the reason they're flocking to printing studios has more to do with the availability of an art medium that was not previously accessible to them.
 
  
