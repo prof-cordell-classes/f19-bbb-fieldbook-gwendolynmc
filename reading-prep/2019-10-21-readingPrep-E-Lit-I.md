@@ -1,0 +1,6 @@
+# Reading Prep: E-lit I
+### 10/21/19
+## Questions or Observations
+1. In _The Reading Brain in the Digital Age_, the author concludes by questioning why screen-based reading needs to be developed with original, paper formats in mind. I thought this was interesting--I very much subscribe to the idea that a traditional book provides an irreplaceable, tactile experience, but I also greatly enjoy things like webcomics and interactive fiction, which don't fit in a paper form very well. Creating e-lit to do things that traditional books cannot seems like a much better use of the medium than just reproducing paper books digitally.
+2. I wonder how much our perception of paper for "effortful learning" vs. screen reading for "fast and shallow reading of short texts" is due to social media.
+3. Does the additional effort sometimes required to 'make sense' of text on a screen (i.e. following hyperlinks, being able to do Google searches) make the task more interesting and in turn make us remember the information any better?
